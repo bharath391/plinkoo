@@ -1,0 +1,1 @@
+- refer my notion notes : https://www.notion.so/STAKE-2913bedcb22e8079997af6e460f207fa?source=copy_link
